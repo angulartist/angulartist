@@ -1,3 +1,1 @@
-retired Angular expert
-tired of breaking changes
-thanks Google
+https://fr.airbnb.com/s/experiences/online
